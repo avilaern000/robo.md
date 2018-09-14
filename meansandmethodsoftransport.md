@@ -9,4 +9,4 @@ occur for many reasons and there should be vehicles to prevent that. There could
 plains.![alt text](futuristicvehicle.jpg "future")
 
 Extreme methods of transporting: There are cool machines that are like a skateboard but has like sensors for your self to control
-it and its very cool. It's extreme because you could do much things with it that makes it extreme.
+it and its very cool. It's extreme because you could do much things with it that makes it extreme.![alt text](extreme.jpg "extreme")
